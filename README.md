@@ -68,7 +68,7 @@ For strategic collaboration or partnership discussions:
 
 📧 **Email:** [codeverseinnovation@gmail.com](mailto:codeverseinnovation@gmail.com)  
 📱 **WhatsApp:** [Chat with Us](https://wa.me/923132791718)  
-🌍 **Portfolio:** https://codeverseinnovations.com/
+🌍 **Portfolio:** https://codeverseinnovations.com/ 
 📍 **Location:** Remote — Global Operations  
 
 ---
